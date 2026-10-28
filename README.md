@@ -1,2 +1,0 @@
-# Adhithyakumar-D
-Integrated circuits
